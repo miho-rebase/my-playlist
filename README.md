@@ -11,6 +11,7 @@
 - [Gusto Ko Nang Bumitaw (from "The Broken Marriage Vow")](https://music.youtube.com/watch?v=32sL0EIPLtI&feature=shared)
 - [Your Song](https://music.youtube.com/watch?v=4HHZEx-NIzU&feature=shared)
 - [Bonito](https://music.youtube.com/watch?v=xxhET61yB1A&feature=shared)
+- [You Gotta Be](https://music.youtube.com/playlist?list=OLAK5uy_m-IXszXLgDPR34KxEssMw4Y1wlZIBAZ9E&si=1G1QTDwO45HHmgBU)
 
 ## ❖ Videos
 
