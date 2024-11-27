@@ -13,6 +13,7 @@
 - [Bonito](https://music.youtube.com/watch?v=xxhET61yB1A&feature=shared)
 - [You Gotta Be](https://music.youtube.com/playlist?list=OLAK5uy_m-IXszXLgDPR34KxEssMw4Y1wlZIBAZ9E&si=1G1QTDwO45HHmgBU)
 - [Chaiyya Chaiyya](https://music.youtube.com/watch?v=9yGukg6SSZ4&si=Z78PUe6QqImFVCbz)
+- [I Don't Want To Be (Official Video)](https://music.youtube.com/watch?v=8gFCW3PHBws&si=iwRWTiIjvFdP6ZtJ)
 
 ## ❖ Videos
 
