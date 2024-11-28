@@ -5,6 +5,7 @@
 - [Jess Glynne](https://music.youtube.com/channel/UCySKHMJ31dcWmdOUyMQUJPQ?feature=shared)
 - [Thomas Rhett](https://music.youtube.com/channel/UC4XKgKbdJ8VgC7SEmhwX0pA?feature=shared)
 - [Jayesslee](https://music.youtube.com/channel/UC58cgoqY6bNUMsLr1avZ3iw?feature=shared)
+- [サカナクション](https://music.youtube.com/channel/UCtHYsFMAI733Qy6Es3wDU6g?si=bpbzMx6KSqyOnnCP)
 
 ## ❖ Songs
 
@@ -15,6 +16,10 @@
 - [Chaiyya Chaiyya](https://music.youtube.com/watch?v=9yGukg6SSZ4&si=Z78PUe6QqImFVCbz)
 - [I Don't Want To Be (Official Video)](https://music.youtube.com/watch?v=8gFCW3PHBws&si=iwRWTiIjvFdP6ZtJ)
 - [Asereje](https://music.youtube.com/watch?v=arZZw8NyPq8&si=CeoiHmpE4CVDBGND)
+- [私とワルツを](https://music.youtube.com/watch?v=LXft3v_cKHk&si=_WHDmypTYjwSBkQ_)
+- [Micro / 踊れ](https://music.youtube.com/watch?v=qgX2c8h3GjA&si=4IipTOycYXom-LH6)
+- [LIFE](https://music.youtube.com/watch?v=kb0wv14CzgQ&si=1_a1RjeFDCM5ohDL)
+- [アンジェラ・アキ「This Love」OFFICIAL MUSIC VIDEO](https://music.youtube.com/watch?v=Xhkvge0rrss&si=nbjr_-rwJe-30eXo)
 
 ## ❖ Videos
 
