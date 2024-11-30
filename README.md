@@ -6,6 +6,8 @@
 - [Thomas Rhett](https://music.youtube.com/channel/UC4XKgKbdJ8VgC7SEmhwX0pA?feature=shared)
 - [Jayesslee](https://music.youtube.com/channel/UC58cgoqY6bNUMsLr1avZ3iw?feature=shared)
 - [サカナクション](https://music.youtube.com/channel/UCtHYsFMAI733Qy6Es3wDU6g?si=bpbzMx6KSqyOnnCP)
+- [fox capture plan](https://music.youtube.com/watch?v=Md4jN2-87FY&si=M7hf3v0Bzp_5Iwnj)
+- [40 Fingers](https://music.youtube.com/channel/UCFqUCp1rUxsr3mpalUTJWmA?si=ykplomZIvBbrE_nX)
 
 ## ❖ Songs
 
@@ -21,6 +23,13 @@
 - [LIFE](https://music.youtube.com/watch?v=kb0wv14CzgQ&si=1_a1RjeFDCM5ohDL)
 - [アンジェラ・アキ「This Love」OFFICIAL MUSIC VIDEO](https://music.youtube.com/watch?v=Xhkvge0rrss&si=nbjr_-rwJe-30eXo)
 
+## ❖ Piece
+
+- [Tico Tico no Fubá - Duo Siqueira Lima - 4 Hands](https://music.youtube.com/watch?v=NVitgDEh_tw&si=nHNsCsUZYugLtaxR)
+- [40 FINGERS - Für Elise (Beethoven meets Flamenco) with 4 Guitars](https://music.youtube.com/watch?v=LvaLlQJ99Q4&si=_bEmTqN6UP55cTjH)
+- [Pirates of the Caribbean](https://music.youtube.com/watch?v=aD0KZc2hf58&si=BzNm0_2r7fplfYWU)
+- [Save Me](https://music.youtube.com/watch?v=nBoO-6aAqXA&si=5_WXzLXH-IbYTpBU)
+
 ## ❖ Videos
 
 - [The Voice Kids Philippines Blind Audition "Power of Love" by Giedie](https://music.youtube.com/watch?v=gnoMfMNCGhY&feature=shared)
@@ -32,5 +41,3 @@
 - [Artists Stand Up to Cancer | Just Stand Up [Fashion Rocks 2008]](https://music.youtube.com/watch?v=HUEF-NzPnD8&feature=shared)
 - [André Rieu ft. Los Del Rio - Macarena](https://music.youtube.com/watch?v=MMRVbhbIkjk&feature=shared)
 - [O.C. Dawgs perform "Pauwi Nako" LIVE on Wish 107.5 Bus](https://music.youtube.com/watch?v=k-C8a-mnbJU&si=06PaokhSSdeQgfkl)
-- [Tico Tico no Fubá - Duo Siqueira Lima - 4 Hands](https://music.youtube.com/watch?v=NVitgDEh_tw&si=nHNsCsUZYugLtaxR)
-- [40 FINGERS - Für Elise (Beethoven meets Flamenco) with 4 Guitars](https://music.youtube.com/watch?v=LvaLlQJ99Q4&si=_bEmTqN6UP55cTjH)
