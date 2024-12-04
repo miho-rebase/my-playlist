@@ -41,3 +41,4 @@
 - [Artists Stand Up to Cancer | Just Stand Up [Fashion Rocks 2008]](https://music.youtube.com/watch?v=HUEF-NzPnD8&feature=shared)
 - [André Rieu ft. Los Del Rio - Macarena](https://music.youtube.com/watch?v=MMRVbhbIkjk&feature=shared)
 - [O.C. Dawgs perform "Pauwi Nako" LIVE on Wish 107.5 Bus](https://music.youtube.com/watch?v=k-C8a-mnbJU&si=06PaokhSSdeQgfkl)
+- [Bugoy Drilon covers "One Day" (Matisyahu) LIVE on Wish 107.5 Bus](https://music.youtube.com/watch?v=OC7oe6ciDzI&si=qHdpKcQkFqibgitD)
