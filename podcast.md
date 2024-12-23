@@ -12,3 +12,16 @@
 - [CNN 5 Things](https://open.spotify.com/show/1xGSLDgVYxLybmXpui6wwo?si=d31e796674464898)
 - [Bloomberg News Now](https://open.spotify.com/show/5q8wg5rFYbbeDk0kk7t6Uc?si=dd638c2be7b84f59)
 - [Learning English from the News](https://open.spotify.com/show/6NZfBr3wPP7DD3uzQCGgFA?si=5848ef0f56e4413d)
+
+## ❖ Ratios
+
+```mermaid
+pie
+    "飯田浩司の OK! Cozy up！" : 45
+    "Rebuild" : 25
+    "リファラジ" : 20
+    "CNN 5 Things" : 4
+    "fukabori.fm" : 2
+    "Bloomberg News Now" : 2
+    "Learning English from the News" : 2
+```
