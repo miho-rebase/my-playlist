@@ -32,8 +32,6 @@
 
 ## ❖ Videos
 
-- [The Voice Kids Philippines Blind Audition "Power of Love" by Giedie](https://music.youtube.com/watch?v=gnoMfMNCGhY&feature=shared)
-- [THE VOICE BEST BLIND AUDITIONS EVER IN HISTORY](https://music.youtube.com/watch?v=0zCXTXQU9V8&feature=shared)
 - [Right There - Tori Kelly feat. Ariana Grande (Televised Performance)](https://music.youtube.com/watch?v=pJRh92DiBn4&feature=shared)
 - [When You Believe (Official HD Video)](https://music.youtube.com/watch?v=LKaXY4IdZ40&feature=shared)
 - [Crazy as Pinoy performs “Panaginip" LIVE on Wish 107.5 Bus](https://music.youtube.com/watch?v=Xg871GqMZN8&feature=shared)
@@ -42,6 +40,12 @@
 - [André Rieu ft. Los Del Rio - Macarena](https://music.youtube.com/watch?v=MMRVbhbIkjk&feature=shared)
 - [O.C. Dawgs perform "Pauwi Nako" LIVE on Wish 107.5 Bus](https://music.youtube.com/watch?v=k-C8a-mnbJU&si=06PaokhSSdeQgfkl)
 - [Bugoy Drilon covers "One Day" (Matisyahu) LIVE on Wish 107.5 Bus](https://music.youtube.com/watch?v=OC7oe6ciDzI&si=qHdpKcQkFqibgitD)
+
+## ❖ Blind Auditions
+
+- [The Voice Kids Philippines Blind Audition "Power of Love" by Giedie](https://music.youtube.com/watch?v=gnoMfMNCGhY&feature=shared)
+- [Hey Ya taken slowly will surprise you | Outkast - Janna Salhoume - TheVoice](https://music.youtube.com/watch?v=ceCAo5p-b9E&si=V9j4I9Kay-KyEd3V)
+- [MORE ->](https://music.youtube.com/playlist?list=PLA4sYF1TlKA9LeeFiUdp1oXywRpQLguUu&si=KYhvX46QPJNXz2wo)
 
 ## ❖ YouTube Play List
 
