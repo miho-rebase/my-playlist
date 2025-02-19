@@ -32,6 +32,7 @@
 
 ## ❖ Videos
 
+- [2002 (Acoustic)](https://music.youtube.com/watch?v=u3ePPA0yzSU&si=f89DQKAJ6IfNViEH)
 - [Right There - Tori Kelly feat. Ariana Grande (Televised Performance)](https://music.youtube.com/watch?v=pJRh92DiBn4&feature=shared)
 - [When You Believe (Official HD Video)](https://music.youtube.com/watch?v=LKaXY4IdZ40&feature=shared)
 - [Crazy as Pinoy performs “Panaginip" LIVE on Wish 107.5 Bus](https://music.youtube.com/watch?v=Xg871GqMZN8&feature=shared)
