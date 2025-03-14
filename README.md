@@ -18,10 +18,6 @@
 - [Chaiyya Chaiyya](https://music.youtube.com/watch?v=9yGukg6SSZ4&si=Z78PUe6QqImFVCbz)
 - [I Don't Want To Be (Official Video)](https://music.youtube.com/watch?v=8gFCW3PHBws&si=iwRWTiIjvFdP6ZtJ)
 - [Asereje](https://music.youtube.com/watch?v=arZZw8NyPq8&si=CeoiHmpE4CVDBGND)
-- [私とワルツを](https://music.youtube.com/watch?v=LXft3v_cKHk&si=_WHDmypTYjwSBkQ_)
-- [Micro / 踊れ](https://music.youtube.com/watch?v=qgX2c8h3GjA&si=4IipTOycYXom-LH6)
-- [LIFE](https://music.youtube.com/watch?v=kb0wv14CzgQ&si=1_a1RjeFDCM5ohDL)
-- [アンジェラ・アキ「This Love」OFFICIAL MUSIC VIDEO](https://music.youtube.com/watch?v=Xhkvge0rrss&si=nbjr_-rwJe-30eXo)
 
 ## ❖ Piece
 
@@ -45,6 +41,15 @@
 - [KZ Tandingan covers "Tadhana" (Up Dharma Down) on Wish 107.5 Bus](https://music.youtube.com/watch?v=WM3NQFpQ6B8&si=vySZsBMevSetd-C1)
 
 ###### [...MORE](https://music.youtube.com/playlist?list=PLA4sYF1TlKA-lTctRDFl2bt9U2ylzKCKF&si=pyKTjj0p03d5t_bl)
+
+## ❖ Japan
+
+- [私とワルツを](https://music.youtube.com/watch?v=LXft3v_cKHk&si=_WHDmypTYjwSBkQ_)
+- [Micro / 踊れ](https://music.youtube.com/watch?v=qgX2c8h3GjA&si=4IipTOycYXom-LH6)
+- [LIFE](https://music.youtube.com/watch?v=kb0wv14CzgQ&si=1_a1RjeFDCM5ohDL)
+- [アンジェラ・アキ「This Love」OFFICIAL MUSIC VIDEO](https://music.youtube.com/watch?v=Xhkvge0rrss&si=nbjr_-rwJe-30eXo)
+
+###### [...MORE](https://music.youtube.com/playlist?list=PLA4sYF1TlKA9DD9fDo05yGgRX0Px_9_95&si=l3g2a_wz27gcvzv-)
 
 ## ❖ Blind Auditions
 
