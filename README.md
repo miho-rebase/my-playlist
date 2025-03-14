@@ -35,18 +35,23 @@
 - [2002 (Acoustic)](https://music.youtube.com/watch?v=u3ePPA0yzSU&si=f89DQKAJ6IfNViEH)
 - [Right There - Tori Kelly feat. Ariana Grande (Televised Performance)](https://music.youtube.com/watch?v=pJRh92DiBn4&feature=shared)
 - [When You Believe (Official HD Video)](https://music.youtube.com/watch?v=LKaXY4IdZ40&feature=shared)
-- [Crazy as Pinoy performs “Panaginip" LIVE on Wish 107.5 Bus](https://music.youtube.com/watch?v=Xg871GqMZN8&feature=shared)
-- [KZ Tandingan, Shanti Dope perform "Imposible" LIVE on Wish 107.5 Bus](https://music.youtube.com/watch?v=ANU6TJ2A57M&feature=shared)
 - [Artists Stand Up to Cancer | Just Stand Up [Fashion Rocks 2008]](https://music.youtube.com/watch?v=HUEF-NzPnD8&feature=shared)
 - [André Rieu ft. Los Del Rio - Macarena](https://music.youtube.com/watch?v=MMRVbhbIkjk&feature=shared)
-- [O.C. Dawgs perform "Pauwi Nako" LIVE on Wish 107.5 Bus](https://music.youtube.com/watch?v=k-C8a-mnbJU&si=06PaokhSSdeQgfkl)
+
+## ❖ Philippine
+
 - [Bugoy Drilon covers "One Day" (Matisyahu) LIVE on Wish 107.5 Bus](https://music.youtube.com/watch?v=OC7oe6ciDzI&si=qHdpKcQkFqibgitD)
+- [O.C. Dawgs perform "Pauwi Nako" LIVE on Wish 107.5 Bus](https://music.youtube.com/watch?v=k-C8a-mnbJU&si=06PaokhSSdeQgfkl)
+- [KZ Tandingan covers "Tadhana" (Up Dharma Down) on Wish 107.5 Bus](https://music.youtube.com/watch?v=WM3NQFpQ6B8&si=vySZsBMevSetd-C1)
+
+###### [...MORE](https://music.youtube.com/playlist?list=PLA4sYF1TlKA-lTctRDFl2bt9U2ylzKCKF&si=pyKTjj0p03d5t_bl)
 
 ## ❖ Blind Auditions
 
 - [The Voice Kids Philippines Blind Audition "Power of Love" by Giedie](https://music.youtube.com/watch?v=gnoMfMNCGhY&feature=shared)
 - [Hey Ya taken slowly will surprise you | Outkast - Janna Salhoume - TheVoice](https://music.youtube.com/watch?v=ceCAo5p-b9E&si=V9j4I9Kay-KyEd3V)
-- [MORE ->](https://music.youtube.com/playlist?list=PLA4sYF1TlKA9LeeFiUdp1oXywRpQLguUu&si=KYhvX46QPJNXz2wo)
+
+###### [...MORE](https://music.youtube.com/playlist?list=PLA4sYF1TlKA9LeeFiUdp1oXywRpQLguUu&si=KYhvX46QPJNXz2wo)
 
 ## ❖ YouTube Play List
 
